@@ -45,7 +45,7 @@ It’s a **multiverse of gameplay twists.**
 
 ## 📦 Download the Game
 
-🎮 **Play Now** → [Download Endless Rush](https://drive.google.com/drive/folders/1mrcyQP4Fi-G9xOWPdD0cQgxxFyMqMAZR?usp=drive_link)
+🎮 **Play Now** → [Download Endless Rush](https://drive.google.com/drive/folders/1X6JWEpD1UDmyQFOuKHxfAP0zua_Ycg9p?usp=drive_link)
 
 > Just unzip, run, and start surviving across the multiverse.
 
